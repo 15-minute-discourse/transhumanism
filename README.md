@@ -30,6 +30,27 @@ Get ready for a *thought-provoking conversation* about:
 
 --- 
 
+- [Editing Our DNA \& Rewiring Our Brains: The MIND-BLOWING Ethics of Transhumanism](#editing-our-dna--rewiring-our-brains-the-mind-blowing-ethics-of-transhumanism)
+  - [The Geopolitical Landscape and Individual Engagement with Transhumanism](#the-geopolitical-landscape-and-individual-engagement-with-transhumanism)
+  - [The Philosophical and Cultural Landscape of Transhumanism](#the-philosophical-and-cultural-landscape-of-transhumanism)
+  - [The Potential Benefits and Criticisms of Transhumanism](#the-potential-benefits-and-criticisms-of-transhumanism)
+  - [Ethical and Philosophical Challenges of Transhumanism](#ethical-and-philosophical-challenges-of-transhumanism)
+  - [Technologies Driving Transhumanism](#technologies-driving-transhumanism)
+  - [What is Transhumanism?](#what-is-transhumanism)
+  - [Here are some questions you could ask to create a compelling podcast on Transhumanism, based on the sources and our previous conversation:](#here-are-some-questions-you-could-ask-to-create-a-compelling-podcast-on-transhumanism-based-on-the-sources-and-our-previous-conversation)
+  - [Ethical and Anthropological Implications of Transhumanism](#ethical-and-anthropological-implications-of-transhumanism)
+  - [Here are some key technological advancements driving transhumanist goals, as discussed in the sources:](#here-are-some-key-technological-advancements-driving-transhumanist-goals-as-discussed-in-the-sources)
+  - [Creating a Future Society: Transhumanism, Population Growth, and Governance](#creating-a-future-society-transhumanism-population-growth-and-governance)
+  - [Navigating the Path to Transhumanism: A Roadmap for Individuals, Companies, and Governments](#navigating-the-path-to-transhumanism-a-roadmap-for-individuals-companies-and-governments)
+  - [Opposition to Transhumanism: A Multifaceted Perspective](#opposition-to-transhumanism-a-multifaceted-perspective)
+  - [Motivations Behind Transhumanism](#motivations-behind-transhumanism)
+  - [Actors, Stakeholders, and Companies Involved in Transhumanism](#actors-stakeholders-and-companies-involved-in-transhumanism)
+  - [Transhumanism: A Future Goal or a New Age Religion?](#transhumanism-a-future-goal-or-a-new-age-religion)
+  - [Transhumanism: A Comprehensive Overview](#transhumanism-a-comprehensive-overview)
+
+
+---
+
 ## The Geopolitical Landscape and Individual Engagement with Transhumanism
 
 Geopolitical Implications of Transhumanism
